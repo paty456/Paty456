@@ -1,5 +1,5 @@
 ### Oi, sou a Patrícia Mota 👋
-Sou Bióloga, Mestre em Diversidade Animal pela UFBA. Estudou Med Vet na UFRB. Já lecionei em Ensino Fundamental II, Analista Ambiental e Pesquisadora de girinos
+Sou Bióloga, Mestre em Diversidade Animal pela UFBA. Estudou Med Vet na UFRB. Já lecionei em Ensino Fundamental II, atuei como Analista Ambiental e fui Pesquisadora de girinos
 
 - 🐸 **Bióloga**,  **Ma. Zoologia**,  **Analista Ambiental**  
 - 👩🏽‍🏫 **Professora de Ciências e Biologia**,  **Pesquisadora**  
